@@ -6,7 +6,7 @@
 - 🔭 I work alone with the potato device :)
 - ⚡ Very happy when invited to create a project together.
 - 😄 I like women with long hair like milf <3
-- 💬 Ask me about project <a href="mailto:hello@afiz.eu.org">hello@afiz.eu.org</a>
+- 💬 Ask me about project <a href="mailto:hexpw@outlook.com">hexpw@outlook.com</a>
 <!--
 **Akouji/Akouji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
